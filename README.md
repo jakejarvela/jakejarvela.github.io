@@ -1,1 +1,0 @@
-# jakejarvela.github.io
